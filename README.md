@@ -1,5 +1,4 @@
-https://github.com/user-attachments/assets/211189f7-090f-4c31-a47d-c66a5607347a
-https://github.com/user-attachments/files/16228201/PROJECT.REPORT.pptx
-
-https://github.com/user-attachments/assets/42a5f1ca-b029-4f16-b69a-8321d8225337
-
+https://github.com/user-attachments/files/16235543/PROJECT.REPORT.pptx<br>
+https://github.com/user-attachments/assets/ef816d1e-f272-49d5-b23b-d39a0da2b6a5<br>
+https://github.com/user-attachments/assets/5fced207-90d8-479f-ad34-e93c8618c449<br>
+https://github.com/user-attachments/files/16235553/CUSTOMIZED.AI.KITCHEN.docx
